@@ -1,1 +1,1 @@
-# rsschool-cv
+# Mykyta Reshetniak
